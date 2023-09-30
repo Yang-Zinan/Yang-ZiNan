@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Yang-Zinan From Hanzhong University in Shaanxi, I am a student in Class 2 of Digital Media Technology, Grade 23.
+- 👋 Hi, I’m Yang-Zinan From Hanzhong in Shaanxi, I am a student in Class 2 of Digital Media Technology, Grade 23.
 - 👀 I’m interested in Digital Media Technology and I am eager to be a member of 414 Lab 
 - 🌱  I hope to learn modeling,editing, PS and other professional skills in 414,and I also want to complete projects together with seniors to refine myself.
 
